@@ -20,3 +20,36 @@
 **Lesson:**
 * Always expect divine provision/supplies anytime your desire/decision/vision pleases God - Ps. 37:4
 
+### Day 3: January 3, 2018 
+##### Focus: Decision-making III
+
+**Today's Progress**: I studied the book of 1 Sam. 29 & 30.
+
+**Thoughts:** David was a man after God's heart and made his decisions by enquiring from God (30:8). In Chapter 29 we saw how he was rejected from joining in a battle against Israel which I believed caused him to return in good time to Ziklag to save his family from being taken into captivity 
+
+**Lesson:**
+* Always enquire from the Lord for your every step - 1 Sam. 30:8
+* Not all rejections are bad. They might God's way of leading his people away from heart break - 1 Sam. 29:6
+
+
+### Day 4: January 4, 2018 
+##### Focus: Decision-making IV
+
+**Today's Progress**: I studied the book of Genesis 3.
+
+**Thoughts:** God created man to be a creature of choice - Deut. 30:19. Apart from just given us options to choose from he also instructs on the best choice to make. Obeying God delivers from curses
+
+**Lesson:**
+* Be ready to follow to the latter every commandment God gives especially from the scriptures - Ps. 119:9. Doing this not only cleanses us but averts curses on out behalf
+
+
+### Day 5: January 5, 2018 
+##### Focus: Decision-making V
+
+**Today's Progress**: I studied the book of Genesis 4.
+
+**Thoughts:** Our decision to give to God can either please or displease him (4:4-5). He is only pleased when we give him our best as he is not in need but only commits to meeting our needs.
+
+**Lesson:**
+* God is interested in how and what I give - Mal. 1:14, 3:10
+
