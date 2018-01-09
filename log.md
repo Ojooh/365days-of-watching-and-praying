@@ -53,3 +53,24 @@
 **Lesson:**
 * God is interested in how and what I give - Mal. 1:14, 3:10
 
+
+### Day 6: January 6, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: I studied the book of Genesis 5.
+
+**Thoughts:** Our decision to walk with God impacts greatly on our children. Enoch walked with God (vs 24) and produced a child that lived the longest of all born of man.
+
+**Lesson:**
+* Longevity, wealth and riches dwells in the lineage and family of everyone who truly walks in the fear of God - Ps. 112:1-3
+
+
+### Day 7: January 7, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: I studied the book of Genesis 6.
+
+**Thoughts:** God is interested in whom we decide to marry. He wants godly seed in the end and so wants his children to be guided when choosing. Failing to follow the will of God for marriage can result in the early deaths (vs. 2-3)
+
+
+
