@@ -78,13 +78,14 @@
 
 **Today's Progress**: I studied the book of Genesis 8.
 
-**Thoughts:** While waiting for God's marching order to leave the ark, Noah took steps by sending out birds (v 7-8) to assess the condition of the earth. This agrees with Prov. 16:1 where it reads,
+**Thoughts:** While waiting for God's marching order to leave the ark, Noah took steps by sending out birds `(v 7-8)` to assess the condition of the earth. This agrees with `Prov. 16:1` where it reads,
 ```
 A preparations of the heart belong to man, but the answer of the tongue is from the Lord
 ```
-It is important to take steps while waiting for the Lord's voice on every situation - Gen. 26:1-3. In the account of Isaac, we saw that as a result of the famine he decided to head to Egypt but as he made his moves, God met him and told him where to stay. Interestingly, his first port of call was where God wanted him to be. I believe this is why it reads in Is. 30:21
+It is important to take steps while waiting for the Lord's voice on every situation - `Gen. 26:1-3`. In the account of Isaac, we saw that as a result of the famine he decided to head to Egypt but as he made his moves, God met him and told him where to stay. Interestingly, his first port of call was where God wanted him to be. I believe this is why it reads in `Is. 30:21`
 ```
-Your ears shall hear a word behind you, saying, "This is the way, walk in it," whenever you turn to the right hand or whenever you turn to the left.
+Your ears shall hear a word behind you, saying, "This is the way, walk in it," 
+whenever you turn to the right hand or whenever you turn to the left.
 ```
 
 
