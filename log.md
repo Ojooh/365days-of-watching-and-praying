@@ -89,4 +89,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 ```
 
 
+### Day 9: January 9, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: I studied the books of Genesis 12 and 13.
+
+**Thoughts:** God leads individuals and not groups.
+
 
