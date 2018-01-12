@@ -106,3 +106,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** Any unpleasant situation that is not addressed is permitted to remain (vs 21). It is thus important not to watch negative trends continue in ones lineage - 1 Chr. 4:9-10 but to deal with them precisely in prayer coupled with fasting.
 
 
+
+### Day 11: January 11, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: Today I explored the book of Genesis 26.
+
+**Thoughts:** It is important never to give up on our engagements as consistency sets the pace to honour and dignity. Isaac was never deterred from building wells and soon his enemies got weary of him.
+
+
