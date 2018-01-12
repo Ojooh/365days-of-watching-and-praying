@@ -97,3 +97,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** God leads individuals and not groups.
 
 
+### Day 10: January 10, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: I studied the book of Genesis 25.
+
+**Thoughts:** Any unpleasant situation that is not addressed is permitted to remain (vs 21). It is thus important not to watch negative trends continue in ones lineage - 1 Chr. 4:9-10 but to deal with them precisely in prayer coupled with fasting.
+
+
