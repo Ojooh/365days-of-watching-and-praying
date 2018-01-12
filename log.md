@@ -112,6 +112,6 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Today's Progress**: Today I explored the book of Genesis 26.
 
-**Thoughts:** It is important never to give up on our engagements as consistency sets the pace to honour and dignity. Isaac was never deterred from building wells and soon his enemies got weary of him.
+**Thoughts:** It is important never to give up on our engagements and commitments as consistency sets the pace to honour and dignity. Isaac was never deterred from building wells **(he built five)** and soon his enemies got weary of him. Paul was deadly committed to his course of persecuting Christians until God met him. Mordecai was committed to serving God and the King Ahasuerus and he ended in a place of honour. The same trait can be observed in other patriarchs. 
 
 
