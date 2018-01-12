@@ -97,6 +97,7 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** God leads individuals and not groups.
 
 
+
 ### Day 10: January 10, 2018 
 ##### Focus: Decision-making 
 
