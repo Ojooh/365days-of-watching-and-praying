@@ -122,3 +122,14 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** This chapter buttresses the fact that covenant children cannot just marry as others do (vs 1-2). In addition, the chapter mentions how Jacob made a vow to God as a result of divine encounter in a night vision.
 
+
+### Day 13: January 13, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: Today I explored the book of Genesis 35.
+
+**Thoughts:** This chapter is the follow up of Genesis 28. Here, God reminds Jacob of the vow he made in chapter 28. This hows that God is always ready to fulfill His side of every vow and expects the same from the person who makes the vow.
+
+**Lesson:**
+* Never make vows that you are not ready to keep - Gen. 23:21-23, Eccl. 5:5-6
+
