@@ -131,5 +131,5 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** This chapter is the follow up of Genesis 28. Here, God reminds Jacob of the vow he made in chapter 28. This hows that God is always ready to fulfill His side of every vow and expects the same from the person who makes the vow.
 
 **Lesson:**
-* Never make vows that you are not ready to keep - Gen. 23:21-23, Eccl. 5:5-6
+* Never make vows that you are not ready to keep - Gen. 23:21-23, Eccl. 5:4-6
 
