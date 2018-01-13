@@ -115,3 +115,10 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** It is important never to give up on our engagements and commitments as consistency sets the pace to honour and dignity. Isaac was never deterred from building wells **(he built five)** and soon his enemies got weary of him. Paul was deadly committed to his course of persecuting Christians until God met him. Mordecai was committed to serving God and the King Ahasuerus and he ended in a place of honour. The same trait can be observed in other patriarchs. 
 
 
+### Day 12: January 12, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: Today I explored the book of Genesis 28.
+
+**Thoughts:** This chapter buttresses the fact that covenant children cannot just marry as others do (vs 1-2). In addition, the chapter mentions how Jacob made a vow to God as a result of divine encounter in a night vision.
+
