@@ -143,4 +143,5 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Lesson:**
 * We must never depend on another for matters that concern us - Gen. 30:1-2
+* It is creativity that brings about prosperity - Gen. 30:37-43
 
