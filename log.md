@@ -128,7 +128,7 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Today's Progress**: Today I explored the book of Genesis 35.
 
-**Thoughts:** This chapter is the follow up of Genesis 28. Here, God reminds Jacob of the vow he made in chapter 28. This hows that God is always ready to fulfill His side of every vow and expects the same from the person who makes the vow.
+**Thoughts:** This chapter is the follow up of Genesis 28. Here, God reminds Jacob of the vow he made in chapter 28. This shows that God is always ready to fulfill His side of every vow and expects the same from the person who makes the vow.
 
 **Lesson:**
 * Never make vows that you are not ready to keep - Gen. 23:21-23, Eccl. 5:4-6
@@ -137,11 +137,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 ### Day 14: January 14, 2018 
 ##### Focus: Decision-making 
 
-**Today's Progress**: Today I explored the book of Genesis 29 and 30.
+**Today's Progress**: Today I explored the book of Genesis 29 through 31.
 
-**Thoughts:** Jacob unlike his father Isaac did not know how to stand in the place of prayer for his wife Rachel.
+**Thoughts:** Contrary situations are tell-tale signs that we are not yet at our place of rest.
 
 **Lesson:**
-* We must never depend on another for matters that concern us - Gen. 30:1-2
 * It is creativity that brings about prosperity - Gen. 30:37-43
+* The creativity that Jacob encountered was a direct response to the vow he had earlier made while leaving his father's place for Laban's house - Gen. 31:10-13
 
