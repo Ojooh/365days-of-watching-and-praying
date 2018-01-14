@@ -133,3 +133,14 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Lesson:**
 * Never make vows that you are not ready to keep - Gen. 23:21-23, Eccl. 5:4-6
 
+
+### Day 14: January 14, 2018 
+##### Focus: Decision-making 
+
+**Today's Progress**: Today I explored the book of Genesis 29 and 30.
+
+**Thoughts:** Jacob unlike his father Isaac did not know how to stand in the place of prayer for his wife Rachel.
+
+**Lesson:**
+* We must never depend on another for matters that concern us - Gen. 30:1-2
+
