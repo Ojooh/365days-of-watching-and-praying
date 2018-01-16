@@ -157,3 +157,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Any vow made with understanding will always deliver - Gen. 31:13
 
 
+### Day 16: January 16, 2018 
+##### Focus: Decision-making - The power of vows 
+
+**Today's Progress**: Today I explored the books of Judges 11 and 1 Samuel 1.
+
+**Thoughts:** The vow that Jephthah and Hannah made delivered without fail.
+
+
