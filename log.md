@@ -145,3 +145,15 @@ whenever you turn to the right hand or whenever you turn to the left.
 * It is creativity that brings about prosperity - Gen. 30:37-43
 * The creativity that Jacob encountered was a direct response to the vow he had earlier made while leaving his father's place for Laban's house - Gen. 31:10-13
 
+
+### Day 15: January 15, 2018 
+##### Focus: Decision-making - The power of vows 
+
+**Today's Progress**: Today I explored the book of Genesis 32 and 33.
+
+**Thoughts:** The vow that Jacob made to God at Bethel was what opened up his destiny - (vs 10).
+
+**Lesson:**
+* Any vow made with understanding will always deliver - Gen. 31:13
+
+
