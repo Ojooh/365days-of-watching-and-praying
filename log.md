@@ -165,3 +165,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** The vow that Jephthah and Hannah made delivered without fail.
 
 
+### Day 17: January 17, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the books of Genesis 37.
+
+**Thoughts:** It is near imposible to kill a man with dreams.
+
+
