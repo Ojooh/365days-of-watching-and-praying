@@ -173,3 +173,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** It is near imposible to kill a man with dreams.
 
 
+### Day 18: January 18, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the books of Genesis 39.
+
+**Thoughts:** 
+* When God goes with a man, s/he experiences success (vs 2a), mercy (vs 21a), favor (vs 21b) and prosperity (vs 23) regardless of where s/he lives on the planet earth 
+
+
