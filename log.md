@@ -179,7 +179,7 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Today's Progress**: Today I explored the books of Genesis 39.
 
 **Thoughts:** 
-* When God goes with a man, s/he experiences success (vs 2a), mercy (vs 21a), favor (vs 21b) and prosperity (vs 23) regardless of where s/he lives on the planet earth 
+* When God goes with a man, s/he experiences **success** (vs 2a), **mercy** (vs 21a), **favor** (vs 21b) and **prosperity** (vs 23) regardless of where s/he lives on the planet earth 
 * However, to carry God's presence, we must be sure he is the one leading us and that we are also committed to pleasing him all the way - John 8:29
 
 
