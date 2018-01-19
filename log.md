@@ -176,10 +176,21 @@ whenever you turn to the right hand or whenever you turn to the left.
 ### Day 18: January 18, 2018 
 ##### Focus: Dreams 
 
-**Today's Progress**: Today I explored the books of Genesis 39.
+**Today's Progress**: Today I explored the book of Genesis 39.
 
 **Thoughts:** 
 * When God goes with a man, s/he experiences **success** (vs 2a), **mercy** (vs 21a), **favor** (vs 21b) and **prosperity** (vs 23) regardless of where s/he lives on the planet earth 
 * However, to carry God's presence, we must be sure he is the one leading us and that we are also committed to pleasing him all the way - John 8:29
+
+
+### Day 19: January 19, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the books of Genesis 40 and 41.
+
+**Thoughts:** 
+* Every incidence or relationship in the life of a man that God is going with happens for a reason - e.g. Joseph was not in Egypt by mistake. He went to prison on purpose and he met with the King's captive for the sole purpose of interpreting their dreams which would at the end result in his rise to power.
+* Never depend on the help of any man in life's journey because unless God sends them to you, they will forget you (Gen. 40:23).
+* Things might not take shape at the time you expect but at the fullness of time in God - Gen. 41:1
 
 
