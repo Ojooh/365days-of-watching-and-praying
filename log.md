@@ -192,5 +192,6 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Every incidence or relationship in the life of a man that God is going with happens for a reason - e.g. Joseph was not in Egypt by mistake. He went to prison on purpose and he met with the King's captive for the sole purpose of interpreting their dreams which would at the end result in his rise to power.
 * Never depend on the help of any man in life's journey because unless God sends them to you, they will forget you (Gen. 40:23).
 * Things might not take shape at the time you expect but at the fullness of time in God - Gen. 41:1
+* Never despise little assignments (opportunities to be of help to others) in your journey through life - Gen. 42:15
 
 
