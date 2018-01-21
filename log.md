@@ -196,3 +196,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Learn to save one-fifth of all your earnings for the future - Gen. 41:34
 
 
+### Day 20: January 20, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the books of Genesis 48, 49 and 50.
+
+**Thoughts:** 
+* The first two sons of Jacob lost their place (birthright) to infidelity and anger/murder respectively - Gen. 48:5
+
+
