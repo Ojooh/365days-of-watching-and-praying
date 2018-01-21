@@ -205,3 +205,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 * The first two sons of Jacob lost their place (birthright) to infidelity and anger/murder respectively - Gen. 48:5
 * All things (situations and circumstances) always work to the advantage of a man that God goes with - Gen 50:20
 
+
+### Day 21: January 21, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the book of Exodus 1.
+
+**Thoughts:** 
+* The fear of the Lord is able to bring about glorious marital settlement - Ex. 1:17,21
+
