@@ -214,3 +214,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * The fear of the Lord is able to bring about glorious marital settlement - Ex. 1:17,21
 
+
+### Day 22: January 22, 2018 
+##### Focus: Dreams 
+
+**Today's Progress**: Today I explored the book of Exodus 2.
+
+**Thoughts:** 
+* The fear of the Lord is able to bring about glorious marital settlement - Ex. 1:17,21
+
