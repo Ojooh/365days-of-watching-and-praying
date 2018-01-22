@@ -221,5 +221,5 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Today's Progress**: Today I explored the book of Exodus 2.
 
 **Thoughts:** 
-* The fear of the Lord is able to bring about glorious marital settlement - Ex. 1:17,21
+* Doors will always open to a man who is ready to render help
 
