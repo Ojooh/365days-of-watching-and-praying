@@ -216,10 +216,10 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 
 ### Day 22: January 22, 2018 
-##### Focus: Dreams 
+##### Focus: Decision making - Lending a helping hand
 
 **Today's Progress**: Today I explored the book of Exodus 2.
 
 **Thoughts:** 
-* Doors will always open to a man who is ready to render help
+* Doors will always open to a man who is ready to lend a helping hand - Gen. 40: 7-8, Ex. 2:18-20
 
