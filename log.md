@@ -223,3 +223,21 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * Doors will always open to a man who is ready to lend a helping hand - Gen. 40: 7-8, Ex. 2:18-20
 
+
+### Day 23: January 23, 2018 
+##### Focus: Decision making - Finances
+
+**Today's Progress**: Today, I explored the book of Exodus 3.
+
+**Thoughts:** 
+* When God leads one out of a place, he makes the provision available - Ex. 3:21
+
+
+### Day 24: January 24, 2018 
+##### Focus: Decision making - Finances
+
+**Today's Progress**: Started reading the book titled, "I'll never be broke another day again".
+
+**Thoughts:** 
+* Doors will always open to a man who is ready to lend a helping hand - Gen. 40: 7-8, Ex. 2:18-20
+
