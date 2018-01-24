@@ -239,5 +239,5 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Today's Progress**: Started reading the book titled, "I'll never be broke another day again".
 
 **Thoughts:** 
-* Doors will always open to a man who is ready to lend a helping hand - Gen. 40: 7-8, Ex. 2:18-20
+* It is the blessing of the Lord that attracts blessings
 
