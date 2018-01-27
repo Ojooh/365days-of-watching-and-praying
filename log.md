@@ -261,3 +261,4 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * When God sends one on an assignment, he places all the requisite skills and abilities in him to carry out the assignment. This I believe is what is called GRACE.
+* In order to carry out the assignment of God, Moses needed to be a keeper of the Covenant of Circumcision. In contemporary times, this stands for sanctification - Ps. 119:9. It is now a matter of the heart as Paul puts it than it is of the flesh - Rom. 2:28-29
