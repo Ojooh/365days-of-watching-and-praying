@@ -241,3 +241,23 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * It is the blessing of the Lord that attracts blessings
 
+
+### Day 25: January 25, 2018 
+##### Focus: Decision making - Finances
+
+**Today's Progress**: Continued reading the book titled, "I'll never be broke another day again".
+
+
+### Day 26: January 26, 2018 
+##### Focus: Decision making - Finances
+
+**Today's Progress**: Finished reading the book titled, "I'll never be broke another day again".
+
+
+### Day 27: January 27, 2018 
+##### Focus: Decision making 
+
+**Today's Progress**: Explored the book of Exodus 4.
+
+**Thoughts:** 
+* When God sends one on an assignment, he places all the requisite skills and abilities in him to carry out the assignment. This I believe is what is called GRACE.
