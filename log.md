@@ -270,4 +270,5 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Today's Progress**: Explored the book of Exodus 5.
 
 **Thoughts:** 
-* The fact that God is leading/speaking to a/an people/individual on the way to go does not mean they will not face challenges. However, in those challenges, God is making a way of escape.
+* The fact that God is leading/speaking to a/an people/individual on the way to go does not mean they will not face challenges. However, in those challenges, God is making a way of escape - Ex. 5:22-23.
+* God's leadings may not make sense but they will always lead one out of captivity, stagnation and frustration.
