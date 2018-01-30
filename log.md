@@ -272,3 +272,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * The fact that God is leading/speaking to a/an people/individual on the way to go does not mean they will not face challenges. However, in those challenges, God is making a way of escape - Ex. 5:22-23.
 * God's leadings may not make sense but they will always lead one out of captivity, stagnation and frustration.
+
+
+### Day 29: January 29, 2018 
+##### Focus: Decision making 
+
+**Today's Progress**: Explored the book of Is. 23-28.
+
+**Thoughts:** 
+* Making melody, singing and praising are some of the ways we can remind God of his word concerning us - Is 23:15-16
