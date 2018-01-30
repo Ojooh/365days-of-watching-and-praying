@@ -292,3 +292,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Curses are only permitted to come when covenants are broken - Gen. 8:22, Is. 24:5-6
 * Anytime you lack peace, you are most likely not staying your mind on the Almighty God - Is. 26:3
 * Praise can revive any hopeless situation - Is. 26:19
+
+
+### Day 30: January 30, 2018 
+##### Focus: Decision making 
+
+**Today's Progress**: Explored the book of Is. 23-28.
+
+**Thoughts:** 
+* God is a guide, counselor and teacher - Is. 28:26, 29
