@@ -301,3 +301,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * God is a guide, counselor and teacher - Is. 28:26, 29
+
+
+### Day 31: January 31, 2018 
+##### Focus: Decision making 
+
+**Today's Progress**: Explored the book of Ps. 12-14.
+
+**Thoughts:** 
+* 
