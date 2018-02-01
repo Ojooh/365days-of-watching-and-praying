@@ -320,3 +320,4 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * Life as a whole is hinged on the law of seedtime and harvest - Gen 8:22. 
 * There is a seed in every man and how we use that seed determines what will be the outcome of our lives - Matt. 13:12
+* Abundance comes by recognizing we have something (a seed) on our insides
