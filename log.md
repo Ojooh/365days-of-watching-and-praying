@@ -313,9 +313,10 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 
 ### Day 32: February 1, 2018 
-##### Focus: Decision making 
+##### Focus: Fruitfulness 
 
 **Today's Progress**: Explored the book of Matt. 11-13.
 
 **Thoughts:** 
-* 
+* Life as a whole is hinged on the law of seedtime and harvest - Gen 8:22. 
+* There is a seed in every man and how we use that seed determines what will be the outcome of our lives - Matt. 13:12
