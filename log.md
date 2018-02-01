@@ -310,3 +310,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * 
+
+
+### Day 32: February 1, 2018 
+##### Focus: Decision making 
+
+**Today's Progress**: Explored the book of Matt. 11-13.
+
+**Thoughts:** 
+* 
