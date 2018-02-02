@@ -321,3 +321,11 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Life as a whole is hinged on the law of seedtime and harvest - Gen 8:22. 
 * There is a seed in every man and how we use that seed determines what will be the outcome of our lives - Matt. 13:12
 * Abundance comes by recognizing we have something (a seed) on our insides
+
+### Day 33: February 2, 2018 
+##### Focus: Love for God 
+
+**Today's Progress**: Explored the book of Joshua 21-24.
+
+**Thoughts:** 
+* Whatever God says about an individual or nation, He is committed to perform. However, there is always what to do to see those words fulfilled and that involves warring - Josh. 21:45, I Tim. 1:18
