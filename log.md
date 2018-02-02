@@ -329,3 +329,6 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * Whatever God says about an individual or nation, He is committed to perform. However, there is always what to do to see those words fulfilled and that involves warring - Josh. 21:45, I Tim. 1:18
+* Love for God can turn a weakling into more than a thousand men - Josh. 23:10
+  * The secret is to love, fear and serve God
+  * It is this fear of the Lord that preserves his blessing over any people - Josh. 24:13-14
