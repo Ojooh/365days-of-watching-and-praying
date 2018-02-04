@@ -346,4 +346,4 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Today's Progress**: Explored the book of Prov. 24.
 
 **Thoughts:** 
-* 
+* Every successful venture is built on three concepts which include: knowledge, understanding and wisdom - Prov. 24:3-4
