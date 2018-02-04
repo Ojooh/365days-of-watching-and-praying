@@ -332,3 +332,18 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Love for God can turn a weakling into more than a thousand men - Josh. 23:10
   * The secret is to love, fear and serve God
   * It is this fear of the Lord that preserves his blessing over any people - Josh. 24:13-14
+  
+  
+### Day 34: February 3, 2018 
+##### Focus: Love for God 
+
+**Today's Progress**: Explored the book of Job 9-10.
+
+
+### Day 35: February 3, 2018 
+##### Focus: Building capacity 
+
+**Today's Progress**: Explored the book of Prov. 24.
+
+**Thoughts:** 
+* 
