@@ -347,3 +347,25 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * Every successful venture is built on three concepts which include: knowledge, understanding and wisdom - Prov. 24:3-4
+
+
+### Day 36: February 4, 2018 
+##### Focus: Building capacity 
+
+**Today's Progress**: Explored the book of Prov. 24.
+
+**Thoughts:** 
+* Knowledge is having facts
+* Understanding is being able to comprehend this fact
+* Wisdom is being able to apply this fact for profiting
+
+
+### Day 37: February 5, 2018 
+##### Focus: How to build capacity 
+
+**Today's Progress**: Explored the book of Prov. 24.
+
+**Thoughts:** 
+* Identify your areas of weaknesses
+* Go for the Word and relevant materials
+* Put to work the principles you learn
