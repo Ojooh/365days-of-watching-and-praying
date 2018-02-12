@@ -369,3 +369,15 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Identify your areas of weaknesses
 * Go for the Word and relevant materials
 * Put to work the principles you learn
+
+
+### Day 43: February 12, 2018 
+##### Focus: Respect for Authority 
+
+**Today's Progress**: Explored the book of Romans 13-14.
+
+**Thoughts:** 
+* God expects me to respect all contituted authority in any place I find myself - Rom. 13:1
+* If I follow the law of Love then I have fulfilled all the law - Rom 13:10
+* I must put on the Lord Jesus as a cloak so as not to make any provision for the flesh - Rom. 13:14
+* Whatever is thing is not done from faith (or done believing) is sin - Rom. 14:23
