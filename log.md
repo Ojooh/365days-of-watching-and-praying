@@ -381,3 +381,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 * If I follow the law of Love then I have fulfilled all the law - Rom 13:10
 * I must put on the Lord Jesus as a cloak so as not to make any provision for the flesh - Rom. 13:14
 * Whatever is thing is not done from faith (or done believing) is sin - Rom. 14:23
+
+
+### Day 46: February 15, 2018 
+##### Focus: Channels of Financial Blessings 
+
+**Today's Progress**: Explored the book of Matt 17-19.
+
+**Thoughts:** 
+* One of God's channels of blessings is the works of our hand - Matt. 17:27
