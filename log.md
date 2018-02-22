@@ -402,3 +402,4 @@ whenever you turn to the right hand or whenever you turn to the left.
 ```However, it is required of stewards that they be found faithful```
 * The cry for mercy should always be specific - Matt. 20:31-34
 * Prayers backed with faith always bring about a receiving - Matt. 21:22
+* God is more interested in action than intentions - Matt. 21:28-29
