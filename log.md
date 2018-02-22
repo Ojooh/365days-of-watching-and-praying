@@ -400,3 +400,4 @@ whenever you turn to the right hand or whenever you turn to the left.
 **Thoughts:** 
 * God is no respecter of persons and treats his stewards the same - Matt. 20:12 
 ```However, it is required of stewards that they be found faithful```
+* The cry for mercy should always be specific - Matt. 20:31-34
