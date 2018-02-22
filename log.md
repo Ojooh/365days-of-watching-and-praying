@@ -390,3 +390,12 @@ whenever you turn to the right hand or whenever you turn to the left.
 
 **Thoughts:** 
 * One of God's channels of blessings is the works of our hand - Matt. 17:27
+
+
+### Day 53: February 22, 2018 
+##### Focus: Stewardship 
+
+**Today's Progress**: Explored the book of Matt 20-22.
+
+**Thoughts:** 
+* God is no respecter of persons and treats his stewards the same - Matt. 20:12 
