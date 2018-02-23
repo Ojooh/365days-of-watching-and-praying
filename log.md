@@ -417,4 +417,8 @@ whenever you turn to the right hand or whenever you turn to the left.
 Waiting on people is simply wasting away
 ```
 * God is never tired of sending us instructors to show us his will for our lives and future if only we are ready to hearken to their instructions - Judg. 13:8-9
-*
+* Missing it in marriage is missing it in life - Judg. 14:3,7,16,17; 16:1,4
+```
+There is no strong man before strange women
+```
+
