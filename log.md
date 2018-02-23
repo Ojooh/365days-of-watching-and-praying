@@ -404,3 +404,17 @@ whenever you turn to the right hand or whenever you turn to the left.
 * Prayers backed with faith always bring about a receiving - Matt. 21:22
 * God is more interested in action than intentions - Matt. 21:28-29
 * A man who knows the Scriptures will never go wrong in life - Matt. 21:29
+
+
+### Day 54: February 23, 2018 
+##### Focus: Stewardship 
+
+**Today's Progress**: Explored the book of Judges 12-16.
+
+**Thoughts:** 
+* If I must experience any breakthrough in life, then I must take my life in my hands and fight - Judg. 12:2-3
+```
+Waiting on people is simply wasting away
+```
+* God is never tired of sending us instructors to show us his will for our lives and future if only we are ready to hearken to their instructions - Judg. 13:8-9
+*
