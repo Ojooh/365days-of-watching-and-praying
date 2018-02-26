@@ -422,3 +422,17 @@ Waiting on people is simply wasting away
 There is no strong man before strange women - Prov. 31:3
 ```
 
+
+### Day 57: February 26, 2018 
+##### Focus: Stewardship 
+
+**Today's Progress**: Explored the book of 1 Cor. 1-2.
+
+**Thoughts:** 
+* Every steward that will succeed must know precisely what s/he has been called to do - 1 Cor. 1:17
+* The message of the gospel is to all but not for all - 1 Cor. 1:22-24
+```
+It is for everyone who will care to believe and then receive it. These class of people are referred to as the called - 1 Cor. 1:24,26,27
+```
+* The message of the gospel should not just be words but a demonstration of the Spirit and power - 1 Cor. 2:4
+* The Holy Spirit is commissioned to reveal to us what God has reserved and also freely given to us in redemption - 1 Cor. 2:9-10,12,15-16
