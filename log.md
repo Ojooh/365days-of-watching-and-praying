@@ -456,3 +456,4 @@ but also keep me from seeing shame - Is. 50:7
 ```
 The result of manifestation among other things is the release of hidden treasures - Is. 45:3
 ```
+* It is only by heeding the commandment on soul-winning that I can enjoy peace like a river, righteousness like the waves of the sea and true profiting - Is 48:17-18
