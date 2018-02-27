@@ -448,5 +448,6 @@ These class of people are referred to as the called - 1 Cor. 1:24,26,27
 * God has already given me the tongue of the learned to know how to witness to souls - Is. 50:4
 ```
 But it is practice that will make perfect. 
-All I need do is be determined
+All I need do is be determined and trust solely in God who will not only stand by me
+but also keep me from seeing shame - Is. 50:7
 ```
