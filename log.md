@@ -452,3 +452,7 @@ These class of people are referred to as the called - 1 Cor. 1:24,26,27
 but also keep me from seeing shame - Is. 50:7
 * He will also defend me from any kind of adversary - Is. 50:9
 ```
+* The purpose of the anointing on the anointed is manifestation - Is. 45:1, Acts 10:38
+```
+The result of manifestation among other things is the release of hidden treasures - Is. 45:3
+```
