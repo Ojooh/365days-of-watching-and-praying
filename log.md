@@ -437,3 +437,16 @@ These class of people are referred to as the called - 1 Cor. 1:24,26,27
 ```
 * The message of the gospel should not just be words but a demonstration of the Spirit and power - 1 Cor. 2:4
 * The Holy Spirit is commissioned to reveal to us what God has reserved and also freely given to us in redemption - 1 Cor. 2:9-10,12,15-16
+
+
+### Day 58: February 27, 2018 
+##### Focus: Stewardship 
+
+**Today's Progress**: Explored the book of Is. 45-50.
+
+**Thoughts:** 
+* God has already given me the tongue of the learned to know how to witness to souls - Is. 50:4
+```
+But it is practice that will make perfect. 
+All I need do is be determined
+```
