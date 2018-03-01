@@ -457,3 +457,21 @@ but also keep me from seeing shame - Is. 50:7
 The result of manifestation among other things is the release of hidden treasures - Is. 45:3
 ```
 * It is only by heeding the commandment on soul-winning that I can enjoy peace like a river, righteousness like the waves of the sea and true profiting - Is 48:17-18.
+
+
+
+### Day 60: March 1, 2018 
+##### Focus: The Fear of the Lord 
+
+**Today's Progress**: Explored the book of Ps. 24-26.
+
+**Thoughts:** 
+* Every God-seeker always has gates of favour opened in his/her direction - Ps. 24:6-7
+```
+A God-seeker is one who keeps his covenant and his testimonies (Word) - Ps. 25:10
+```
+* Everyone who fears God is always guided by him - Ps. 25:12-14
+```
+Such a one will be shown secret things that bring about prosperity of the magnitude that
+possesses the earth
+```
