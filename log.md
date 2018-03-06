@@ -475,3 +475,20 @@ A God-seeker is one who keeps his covenant and his testimonies (Word) - Ps. 25:1
 Such a one will be shown secret things that bring about prosperity of the magnitude that
 possesses the earth
 ```
+
+
+### Day 64: March 5, 2018 
+##### Focus: Kingdom Stewardship 
+
+**Today's Progress**: Explored the book of Is. 51-55.
+
+**Thoughts:** 
+* Never fear the reproach or insults of men when you are out serving God on the harvest field - Is. 51:7
+```
+To avoid fear always compare your mocker in size to God - Is. 51:12-13
+```
+* When you are on the harvest field, God puts the right words in your mouth and shields you from attack - Is. 51:16
+```
+Such a one will be shown secret things that bring about prosperity of the magnitude that
+possesses the earth
+```
