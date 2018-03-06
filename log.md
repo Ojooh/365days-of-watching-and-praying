@@ -488,7 +488,6 @@ possesses the earth
 To avoid fear always compare your mocker in size to God - Is. 51:12-13
 ```
 * When you are on the harvest field, God puts the right words in your mouth and shields you from attack - Is. 51:16
-```
-Such a one will be shown secret things that bring about prosperity of the magnitude that
-possesses the earth
-```
+* Never rush into the harvest field without first asking God to lead the way so he can also watch your back - Is. 52:12, Is. 54:15, 17
+* There is sure reward when I pour my soul to the lost (share personal testimonies) and also intercede (pray) for them - Is. 53:12
+* Ensure to carry a joyful look as you go out. It levels all barriers to interaction - Is. 55:12-13
