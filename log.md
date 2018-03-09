@@ -491,3 +491,22 @@ To avoid fear always compare your mocker in size to God - Is. 51:12-13
 * Never rush into the harvest field without first asking God to lead the way so he can also watch your back - Is. 52:12, Is. 54:15, 17
 * There is sure reward when I pour my soul to the lost (share personal testimonies) and also intercede (pray) for them - Is. 53:12
 * Ensure to carry a joyful look as you go out. It levels all barriers to interaction - Is. 55:12-13
+
+
+
+### Day 68: March 9, 2018 
+##### Focus: The Essence of Divine Direction 
+
+**Today's Progress**: Explored the book of Ruth.
+
+**Thoughts:** 
+* Not every adverse condition is God telling us to move out of where we are - Ruth 1:1-5,21
+```
+We were not told that Elimelech enquired of the Lord before making his move.
+```
+* It is by right relationships that we will fulfill destiny - Ruth 1:16-18
+```
+Ruth stayed with Naomi and ended up fulfilling destiny in a grand style. If she turned
+back from following Naomi she would never have made her way into the Bible as a worthy example 
+for women to follow and learn from.
+```
