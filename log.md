@@ -526,5 +526,6 @@ He progressed to providing interpretations and finally to providing solutions to
 * Drawing from his account, I perceive I have ability to write and so to put this to use I will target writing Medium posts on a weekly basis. I believe something positive can come out of it.
 * I will also put daily and conscious effort into writing academic articles as well. This is aside my love for learning coding.
 ```
-Going by the 5/25 rule I read about in a Medium post yesterday, I think I will double down efforts on __writing research articles__, experience blogs, web development, training and providing advice.
+Going by the 5/25 rule I read about in a Medium post yesterday, I think I will double down efforts on 
+writing research articles, experience blogs, web development, training and providing advice.
 ```
