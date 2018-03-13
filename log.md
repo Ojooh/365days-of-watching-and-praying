@@ -510,3 +510,17 @@ Ruth stayed with Naomi and ended up fulfilling destiny in a grand style. If she 
 back from following Naomi she would never have made her way into the Bible as a worthy example 
 for women to follow and learn from.
 ```
+
+
+### Day 72: March 13, 2018 
+##### Focus: The Essence of Divine Endowments 
+
+**Today's Progress**: Explored the book of Gen. 40-43.
+
+**Thoughts:** 
+* In order to take territories for Christ, we must be willing to readily develop and use our various giftings - Gen. 40:7-8
+```
+The more we use our gifts, the more it gets enhanced. Joseph began by just telling his dreams.
+He progressed to providing interpretations and finally to providing solutions to other people's dreams.
+```
+* Drawing from his account, I perceive I have ability to write and so to put this to use I will target writing Medium posts on a weekly basis. I believe something positive can come out of it.
