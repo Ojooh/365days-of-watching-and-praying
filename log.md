@@ -529,3 +529,16 @@ He progressed to providing interpretations and finally to providing solutions to
 Going by the 5/25 rule I read about in a Medium post yesterday, I think I will double down efforts on 
 writing research articles, experience blogs, web development, training and providing advice.
 ```
+
+
+### Day 81: March 22, 2018 
+##### Focus: Leadership 
+
+**Today's Progress**: Explored the book of Mark 3-4.
+
+**Thoughts:** 
+* Jesus was highly sought out by multitudes (comprising of five cities) as a result of what they heard him do - Mark. 3:8
+```
+A person with results to show in any area will not lack followership
+```
+* Whatever you learn about and put to work will always multiply but what you hear and do nothing about fizzles away - Mark 4:24-25
